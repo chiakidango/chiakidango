@@ -27,6 +27,10 @@ I love connecting with others ♡♡ and making them smile ✧❀✧ but I also 
 
 I feel things deeply ❀, laugh loudly ✦✧, and sometimes overthink a lot ⌘✧—but that’s just part of my charm ✫❀✵ I’m always rooting for the underdog ✪, believing in magic ✨, and hoping to leave a little sparkle wherever I go ☆✧✩
 
+Sometimes I overthink things ⌘´･ᴗ･`
+I can get distracted ✧˖° and forget little details ❁
+My feelings can be intense ✧﹏✧ and I overfeel everything ⌘✿
+I hate being bored ✵ and can feel restless ✫﹏✫
 
 ✧ ˗ feel free to c+h ^^ ˗ ✧
 
