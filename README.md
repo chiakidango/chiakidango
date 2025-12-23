@@ -1,13 +1,17 @@
-<img width="540" height="113" alt="tumblr_73da15167e00222bee52464f4a23d3f2_b94c7a87_540" src="https://github.com/user-attachments/assets/52c8ea66-f94d-4416-813e-5513ef4dc661" />
+![tumblr_12b744b549fda5aae128c8f952a8bb78_25adf439_500](https://github.com/user-attachments/assets/0f9aff42-f222-4d55-ad00-453f946d8807)
+
+![tumblr_0f0d913b0718b597abd066c3227f6cd1_a95f74a0_540](https://github.com/user-attachments/assets/f2c2aaec-e87a-4011-a7bf-3fa0f92741d6)
+
+![tumblr_89a44a60eee091fd3065eecd50d74846_2e6a521b_400](https://github.com/user-attachments/assets/7e0f1f66-6e95-4ced-92c7-327f38a612c0)
 
 ![529201145-43689fad-081d-489b-ab50-ec2d27672c5a](https://github.com/user-attachments/assets/b2ede2e9-94da-4523-8d0e-bc60004a93d6)
 
 # 🩷
-✧ ✦ ʚ sky ɞ ✦ ✧
+✧ ✦ ʚ hii! i'm sky ɞ ✦ ✧
 
 ˖ ✧ pronouns : any ✧ ˖
 
-⟡ ✦ im minor Y_Y ✦ ⟡
+⟡ ✦ im minor Y^Y ✦ ⟡
 
 ⟡ ˖ enfp | 4w2 ˖ ⟡
 
@@ -19,8 +23,16 @@
 
 ✧ ˗ feel free to c+h ^^ ˗ ✧
 
-![tumblr_a117f883e1a4bcbecdca3b9c5dc587ac_5d2a2490_540](https://github.com/user-attachments/assets/5144d37f-aa1a-4d24-89d2-fe3ac6e66b3a)
+![tumblr_0ebb08449ac1d0d499fdac6f714c97bb_98e48e3f_540](https://github.com/user-attachments/assets/995c26b7-24ac-41e2-ac54-1386a003d52a)
 
-![529201187-d109aae2-6529-4d75-85d9-895a4ab99739](https://github.com/user-attachments/assets/ec14f930-ff91-4ddf-bcf3-6843fc9ca63b)
 
-<img width="540" height="113" alt="tumblr_73da15167e00222bee52464f4a23d3f2_b94c7a87_540" src="https://github.com/user-attachments/assets/2bedcc76-b1a2-4335-b453-c4d71741d854" />
+![tumblr_ef0205ce5f1ad59a1b47cdcc68675f54_5d27fe08_540](https://github.com/user-attachments/assets/d598999a-c65e-484e-b3af-ee9b032803ee)
+
+( ᘏ ⑅ ᘏ ꜣꜣ ﹫Chiaki Nanami 𑁤 ! ᨦ🎮ദ
+
+![tumblr_0f0d913b0718b597abd066c3227f6cd1_a95f74a0_540](https://github.com/user-attachments/assets/1dbff792-2e8b-4ad4-a85f-133f51da9796)
+
+
+![tumblr_395233568d18fa742fd2312359cb38b4_6d49885e_400](https://github.com/user-attachments/assets/81cff006-0af7-43d4-8a35-f3161d6463e1)
+
+![tumblr_12b744b549fda5aae128c8f952a8bb78_25adf439_500](https://github.com/user-attachments/assets/95733110-6e86-4070-847e-161c4359b683)
