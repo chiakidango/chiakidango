@@ -13,7 +13,7 @@
 
 ⟡ ✦ Im minor Y^Y ✦ ⟡
 
-⟡ ˖ ENFP | 4w2 ˖ ⟡
+⟡ ˖ ENFP | 7w6 ˖ ⟡
 
 ✦ ✧ Fandom : Danganronpa ✧ ✦
 
