@@ -40,8 +40,10 @@ I hate being bored ✵ and can feel restless ✫﹏✫
 ![tumblr_ef0205ce5f1ad59a1b47cdcc68675f54_5d27fe08_540](https://github.com/user-attachments/assets/d598999a-c65e-484e-b3af-ee9b032803ee)
 
 ( ᘏ ⑅ ᘏ ꜣꜣ ﹫Chiaki Nanami 𑁤 ! ᨦ🎮ദ
+
 I like Chiaki Nanami ♡ bc she’s kind ✦●◦✧ and thoughtful ✩●◦✪, always supporting her friends ✦●✩●◦, and her clever, calm nature ✪●◦✦ makes everyone feel happy and safe ☆●✧●◦
 # and !?
+
 I like Nagito Komaeda ♡ bc he’s unpredictable ✦●◦✧, always keeps things exciting ✩●◦✪, and even with his strange ways ✦●✩●◦, he has a heart that cares deeply ✪●◦✦ for others ☆●✧●◦
 
 ![tumblr_0f0d913b0718b597abd066c3227f6cd1_a95f74a0_540](https://github.com/user-attachments/assets/1dbff792-2e8b-4ad4-a85f-133f51da9796)
