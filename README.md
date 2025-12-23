@@ -7,29 +7,29 @@
 ![529201145-43689fad-081d-489b-ab50-ec2d27672c5a](https://github.com/user-attachments/assets/b2ede2e9-94da-4523-8d0e-bc60004a93d6)
 
 # 🩷
-✧ ✦ ʚ hii! i'm sky ɞ ✦ ✧
+✧ ✦ ʚ Hii! I'm Sky ɞ ✦ ✧
 
-˖ ✧ pronouns : any ✧ ˖
+˖ ✧ Pronouns : Any ✧ ˖
 
-⟡ ✦ im minor Y^Y ✦ ⟡
+⟡ ✦ Im minor Y^Y ✦ ⟡
 
-⟡ ˖ enfp | 4w2 ˖ ⟡
+⟡ ˖ ENFP | 4w2 ˖ ⟡
 
-✦ ✧ fandom : danganronpa ✧ ✦
+✦ ✧ Fandom : Danganronpa ✧ ✦
 
 # 🤍
 
-˖ ✦ friendly cheerful freaky sometimes... if you want to be my friend ofc!! hehe ! slow to reply sometimes bc im afk and i love all my friends :3 ✦ ˖
+˖ ✦ Friendly cheerful freaky sometimes... If you want to be my friend ofc!! hehe ! slow to reply sometimes bc Im afk and I love all my friends :3 ✦ ˖
 
 ✧･ﾟ: ✧･ﾟ: I’m a little bundle of curiosity ✦✧ and sunshine ☼~ I get excited about ideas ✩, people ✪, and anything that sparks my imagination ✫❀ Sometimes my brain goes faster than my feet ⌘✿ but that just means I’m always dreaming up something new ☆⌒(≧▽​° )
 
-I love connecting with others ♡♡ and making them smile ✧❀✧ but I also need my moments to daydream ✵ and explore my own thoughts ❁✦ I’m spontaneous ✨, playful ✧, and can turn even the tiniest moments into fun adventures ✩✫✵
+I love connecting with others ♡♡ and making them smile ✧❀✧ but I also need my moments to daydream ✵ and explore my own thoughts ✦ I’m spontaneous ✨ playful ✧, and can turn even the tiniest moments into fun adventures ✩✫✵
 
 I feel things deeply ❀, laugh loudly ✦✧, and sometimes overthink a lot ⌘✧—but that’s just part of my charm ✫❀✵ I’m always rooting for the underdog ✪, believing in magic ✨, and hoping to leave a little sparkle wherever I go ☆✧✩
 
 Sometimes I overthink things ⌘´･ᴗ･`
 I can get distracted ✧˖° and forget little details ❁
-My feelings can be intense ✧﹏✧ and I overfeel everything ⌘✿
+My feelings can be intense ✧﹏✧ and I overfeel everything ⌘
 I hate being bored ✵ and can feel restless ✫﹏✫
 
 ✧ ˗ feel free to c+h ^^ ˗ ✧
