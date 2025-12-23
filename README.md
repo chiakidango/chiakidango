@@ -21,6 +21,13 @@
 
 ˖ ✦ friendly cheerful freaky sometimes... if you want to be my friend ofc!! hehe ! slow to reply sometimes bc im afk and i love all my friends :3 ✦ ˖
 
+✧･ﾟ: ✧･ﾟ: I’m a little bundle of curiosity ✦✧ and sunshine ☼~ I get excited about ideas ✩, people ✪, and anything that sparks my imagination ✫❀ Sometimes my brain goes faster than my feet ⌘✿ but that just means I’m always dreaming up something new ☆⌒(≧▽​° )
+
+I love connecting with others ♡♡ and making them smile ✧❀✧ but I also need my moments to daydream ✵ and explore my own thoughts ❁✦ I’m spontaneous ✨, playful ✧, and can turn even the tiniest moments into fun adventures ✩✫✵
+
+I feel things deeply ❀, laugh loudly ✦✧, and sometimes overthink a lot ⌘✧—but that’s just part of my charm ✫❀✵ I’m always rooting for the underdog ✪, believing in magic ✨, and hoping to leave a little sparkle wherever I go ☆✧✩
+
+
 ✧ ˗ feel free to c+h ^^ ˗ ✧
 
 ![tumblr_0ebb08449ac1d0d499fdac6f714c97bb_98e48e3f_540](https://github.com/user-attachments/assets/995c26b7-24ac-41e2-ac54-1386a003d52a)
